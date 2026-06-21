@@ -6,6 +6,6 @@ I'm Rehmat Web Developer
 - 👯 I’m looking to collaborate on web development
 - 🤔 I’m looking for help with problem solving
 - 💬 Ask me about web development
-- 📫 How to reach me: (Rehmat)[https://instgram.com/_re_hm_at_]
+- 📫 How to reach me: **[Rehmat](https://instagram.com/re_hm_at)**
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am Artist 

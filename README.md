@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about web development
 - 📫 How to reach me: (Rehmat)[https://instgram.com/_re_hm_at_]
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am Artist
+- ⚡ Fun fact: I am Artist 
 -->
